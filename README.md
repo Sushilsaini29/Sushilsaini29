@@ -1,4 +1,4 @@
-## Hi 👋, I'm [Sushil](https://bio.link/sushilsaini)
+## Hi 👋, I'm [Sushil Saini](https://bio.link/sushilsaini)
 
 ### [Connect with me 💬](https://bio.link/sushilsaini) 
 
